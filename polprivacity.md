@@ -1,3 +1,4 @@
+#Política de Privacidade
 
 Esta página é usada para informar os usuários do aplicativo sobre nossas políticas de coleta, uso e divulgação de Informações Pessoais, se alguém decidir usar esse Serviço.
 
